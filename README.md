@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT and TECH <WEB AND MOBILE DEV>
 - 🌱 I’m currently learning MOBILE DEVELLOPMENT with FLUTTER
 - 💞️ I’m looking to collaborate on  CODE 
-- 📫 How to reach me :  +237 655311240<WhATSAPP> 
+- 📫 How to reach me :  +237 620256462<WhATSAPP> 
   
 <!---
 TATS03/TATS03 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
